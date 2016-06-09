@@ -10,7 +10,7 @@ Cookies (Séréna's recipee)
 * 3 eggs
 * chocolate
 
-### Directions 
+### Directions
 
 * Preheat @ 180ºC for 10 mins
 * Bake @ 180ºC for 10 mins
