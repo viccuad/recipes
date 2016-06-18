@@ -59,5 +59,5 @@ the frying pan and let it be for another 10 mins.
 
 Add olives and cut boiled eggs on top for decoration.
 
-Serve its portion sprinkled by a lemon lemon clove and/or a side spoon of
+Serve each portion sprinkled by a lemon lemon clove and/or a side spoon of
 ali-oli (shredded garlic and mayonnaise).
